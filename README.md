@@ -5,4 +5,4 @@
 <p align="center">
 ‿‿‿‿.   🌂    .‿‿‿‿
 <p align="center">
-  weathergirl fictkin, supposed to have a new strawpage but fuckass cloudflare wont work #ihateclankers
+  weathergirl fictkin, c*h enc mostly seen in bakery
