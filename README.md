@@ -5,4 +5,4 @@
 <p align="center">
 ‿‿‿‿.   🌂    .‿‿‿‿
 <p align="center">
-  weathergirl fictkin, is strawpage down or am i crazy (msg in old sp so i can confirm guh)
+  weathergirl fictkin, they / rain / cloud
