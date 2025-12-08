@@ -6,3 +6,5 @@
 ‿‿‿‿.   🌂    .‿‿‿‿
 <p align="center">
   weathergirl fictkin, they / rain / cloud
+  <p align="center">
+  little more abt me is that i freely block if youre too pushy
