@@ -7,4 +7,4 @@
 <p align="center">
   weathergirl fictkin, they / rain / cloud
   <p align="center">
-  i freely block if youre too pushy, also you can freely block me too if i am in your dni ^^
+  i freely block if youre too pushy, DNI THAT ONE VEERONICA FAN 😒
